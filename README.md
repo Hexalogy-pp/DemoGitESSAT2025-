@@ -1,4 +1,5 @@
 # DemoGitESSAT2025
+# Chaimaa is active now   
 # MimoYoucef is active now
 # ines is active
 i'm the new person 
@@ -8,4 +9,3 @@ please accept the request
 # ABDELLAH BENKHATTOU YASSINE IS ACTIVE NOW 
 # Yacine is active 🔥
 # Faiza KHELIL is here
-# Chaimaa is active now
